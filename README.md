@@ -1,1 +1,1 @@
-# rsschool-cv
+https://eugenev8.github.io/rsschool-cv/cv
